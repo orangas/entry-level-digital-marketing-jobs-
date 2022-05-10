@@ -1,11 +1,12 @@
  <h1>Entry Level Digital Marketing Jobs</h1>
-<p>Based on this information, <a href="https://www.orangas.com/degital-marketing/">digital marketing</a> is a rapidly growing ![entry level digital marketing jobs](https://user-images.githubusercontent.com/105293151/167639999-1bfb6c4f-9d07-4ba0-b177-350eb9dad75e.png)
-field with many entry-level jobs available for those with the right skills. 
+<p>Based on this information, <a href="https://www.orangas.com/degital-marketing/">digital marketing</a> is a rapidly growing
+  field with many entry-level jobs available for those with the right skills. 
   Whether you are just starting in your career or looking to change paths, 
-  a job in digital marketing can be a great option. In this role, you will be responsible for launching and managing marketing campaigns across multiple digital channels, 
-  including social media platforms, search engines, email newsletters, and more. To be successful in this position, you will need strong analytical skills and an 
+  a job in digital marketing can be a great option. In this role, you will be responsible for launching and managing marketing campaigns across multiple digital      channels, including social media platforms, search engines, email newsletters, and more. To be successful in this position, you will need strong analytical skills and an 
   understanding of how people use the internet and social media sites. Additionally, digital marketing jobs often come with competitive salaries and the potential to work 
-  remotely or travel as needed. If you are interested in pursuing a career in digital marketing, there are several entry Level Digital Marketing Jobs.<p>
+  remotely or travel as needed. If you are interested in pursuing a career in digital marketing, there are several entry Level Digital Marketing Jobs.</p>
+  <img src="https://www.orangas.com/wp-content/uploads/2022/05/entry-level-digital-marketing-jobs-e1651969294183-1024x566.png"sizes="40px,40px"alt="digital-marketer">
+
 <br><a href="https://www.orangas.com/entry-level-digital-marketing-jobs/"><h2>Top Entry Level Digital Marketing Jobs</h2></a>
 <p>Many forms of marketing and communications, including search engine optimization, content marketing, and social media, are specialized domains in their own right. 
   In each focus field, there are entry-level jobs that provide a broad and diverse career path.</p>
