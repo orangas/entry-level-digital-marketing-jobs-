@@ -5,7 +5,7 @@
   a job in digital marketing can be a great option. In this role, you will be responsible for launching and managing marketing campaigns across multiple digital      channels, including social media platforms, search engines, email newsletters, and more. To be successful in this position, you will need strong analytical skills and an 
   understanding of how people use the internet and social media sites. Additionally, digital marketing jobs often come with competitive salaries and the potential to work 
   remotely or travel as needed. If you are interested in pursuing a career in digital marketing, there are several entry Level Digital Marketing Jobs.</p>
-  <img src="https://www.orangas.com/wp-content/uploads/2022/05/entry-level-digital-marketing-jobs-e1651969294183-1024x566.png"sizes="40px,40px"alt="digital-marketer">
+  <img src="https://www.orangas.com/wp-content/uploads/2022/05/entry-level-digital-marketing-jobs-e1651969294183-1024x566.png" alt="entry-level-digital-marketing-jobs">
 
 <br><a href="https://www.orangas.com/entry-level-digital-marketing-jobs/"><h2>Top Entry Level Digital Marketing Jobs</h2></a>
 <p>Many forms of marketing and communications, including search engine optimization, content marketing, and social media, are specialized domains in their own right. 
